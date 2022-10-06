@@ -4,6 +4,39 @@
 - brazil
 so this is about me, not so much thing, but its something, alright? 
 
+this place is so cool, so much codes here!
+who read README.md?
+nothing special here
+-put text here-
+call me on discord dkrlma#0013 :)
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
