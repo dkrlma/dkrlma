@@ -1,3 +1,20 @@
+- i dokerlima, just a nice ppl on github making some codes.
+- studies on alura.com.br
+- i like so much discord bots, i so cool!
+- brazil
+so this is about me, not so much thing, but its something, alright? 
+
+
+
+
+
+
+
+
+
+
+
+===============================================================================
 #####     #####   ### ###  #######  ######   ####      ######  ##   ##    ###
  ## ##   ### ###   ## ##    ##   #   ##  ##   ##         ##    ### ###   ## ##
  ##  ##  ##   ##   ####     ##       ##  ##   ##         ##    #######  ##   ##
@@ -6,8 +23,3 @@
  ## ##   ### ###   ## ##    ##   #   ## ##    ##  ##     ##    ##   ##  ##   ##
 #####     #####   ### ###  #######  #### ##  #######   ######  ### ###  ##   ##
 ===============================================================================
-- i dokerlima, just a nice ppl on github making some codes.
-- studies on alura.com.br
-- i like so much discord bots, i so cool!
-- brazil
-so this is about me, not so much thing, but its something, alright? 
