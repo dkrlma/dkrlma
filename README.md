@@ -4,4 +4,4 @@
 - ✨ brazil
 - 💬 dkrlma#0013
 
-so this is about me, not so much thing, but its something, alright? 
+so this is about me, not so much thing, but its something, alright? 😀
